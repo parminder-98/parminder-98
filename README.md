@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @parminder-98
+- 👀 I’m interested in field of coading
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on a good basic project
+- 📫 How to reach me:contact me my gmail id-parmindr.singh981068@gmail.com
+- ⚡ fact: i will be the richest person in the world one day
